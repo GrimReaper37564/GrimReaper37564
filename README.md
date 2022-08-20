@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GrimReaper37564
-- 👀 I’m interested in cars, especially JDM and GT-r
+- 👀 I’m interested in cars, especially JDM and GT-R
 - 🌱 I’m currently learning CS&E
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
